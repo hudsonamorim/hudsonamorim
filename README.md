@@ -6,7 +6,10 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-- ![](https://media.tenor.com/-aJXkeZwoxIAAAAM/david-rose-schitts-creek-david.gif)
+- ![])
+- ![https://media1.tenor.com/m/m2XWBYva4tkAAAAC/lacoste.gif])
+- ![])
+  )
 <!---
 hudsonamorim/hudsonamorim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
